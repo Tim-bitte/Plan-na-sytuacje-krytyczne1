@@ -1,0 +1,1 @@
+# Plan-na-sytuacje-krytyczne1
