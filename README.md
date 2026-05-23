@@ -1,1 +1,1 @@
-# Plutonizm, wulkanizm i trzęsienia ziemi
+# Plu
