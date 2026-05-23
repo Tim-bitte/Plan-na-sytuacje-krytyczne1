@@ -1,1 +1,1 @@
-# Plan-na-sytuacje-krytyczne1
+# Plutonizm, wulkanizm i trzęsienia ziemi
